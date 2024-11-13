@@ -1,1 +1,1 @@
-# statingjm.github.io
+# statinjm.github.io
