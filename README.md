@@ -1,1 +1,0 @@
-# statinjm.github.io
